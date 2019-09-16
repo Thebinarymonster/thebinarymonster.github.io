@@ -4,24 +4,35 @@
 What that means is that every Monday there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
 
 
+## 9-16-2019
+## Practically Triangular 
+
+I am: not quite, so close, only 2 sides but I want 3  
+Come on, I don't even have one knee   
+Almost, unlike everyone else   
+
+I am different   
+I am special   
+And I don't need that third side
+
+
+### :)
+
+
+
+## 9-9-2019
 ## Here is my first poem:
 
 
-evergreens are forever green
+evergreens are forever green  
+unanimosly green  
+oh what liberty to be green  
+the payment-stares of wonder  
 
-unanimosly green
-
-oh what liberty to be green
-
-the payment-stares of wonder
-
-as if you were at a baseball game
-
-your favorite player-a home run
-
-there might be stares of awe or fame
-
-I know it must be hot in that sun
+as if you were at a baseball game  
+your favorite player-a home run  
+there might be stares of awe or fame  
+I know it must be hot in that sun  
 
 
 ### And don't forget to check back next Monday for more! :)
