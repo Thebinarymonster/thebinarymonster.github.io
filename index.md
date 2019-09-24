@@ -4,6 +4,14 @@
 What that means is that every Monday there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
 
 
+## 9-23-19
+## This is a haiku:
+
+I love languages  
+I speak english and others  
+French and Spanish too
+
+
 ## 9-16-2019
 ## Practically Triangular 
 
