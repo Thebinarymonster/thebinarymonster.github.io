@@ -3,6 +3,13 @@
 ## This is a poetry blog.
 What that means is that every Monday there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
 
+## 9-30-19
+## This haiku defines haikus: 
+
+This is a haiku  
+Yes, especially for you  
+The rythem: five-seven-five  
+
 
 ## 9-23-19
 ## This is a haiku:
