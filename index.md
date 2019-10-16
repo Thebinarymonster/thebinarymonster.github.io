@@ -1,7 +1,29 @@
 # Welcome to my blog!
 
 ## This is a poetry blog.
-What that means is that every Monday there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
+What that means is that most Mondays there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
+## 10-14-19
+## More to learn
+
+There is always  
+more to learn.  
+Whether you are an adult, kid, or baby, there's  
+more to learn
+
+More to learn about math.  
+More to learn about reading.  
+More to learn about science, writing, and more!  
+
+You can't know it all,  
+She can't know it all,  
+He can't know it all,  
+They can't know it all,  
+
+Even when we work together,  
+More to learn!
+
+
+
 
 ## 9-30-19
 ## This haiku defines haikus: 
