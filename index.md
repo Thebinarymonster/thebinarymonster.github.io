@@ -2,6 +2,11 @@
 
 ## This is a poetry blog.
 What that means is that most Mondays there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
+
+## However...
+### UPDATE 5-1-20
+Sorry I haven't been posting in a while. I'll try to get back to posting regularly, but it won't all be poems. You might find funny stories, recipies or other stuff here. So really, kind of random stuff.
+
 ## 10-14-19
 ## More to learn
 
