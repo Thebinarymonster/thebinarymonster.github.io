@@ -1,15 +1,15 @@
 # Welcome to my blog!
 
-the world is stuck 
-I want covid to be done
-but when will it be?
+the world is stuck   
+I want covid to be done  
+but when will it be?  
 
 ## This is a poetry blog.
 What that means is that most Mondays there will be at least one new poem on this blog, so check back weekly. All the poems are/will be written by me.
 
 ## However...
 ### UPDATE 5-1-20
-Sorry I haven't been posting in a while. I'll try to get back to posting regularly, but it won't all be poems. You might find funny stories, recipies or other stuff here. So really, kind of random stuff.
+Sorry I haven't been posting in a while. I'll try to get back to posting regularly, but you might other stuff here.
 
 ## 10-14-19
 ## More to learn
